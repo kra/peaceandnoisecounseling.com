@@ -13,3 +13,9 @@ My approach is direct, nurturing and connective. Our relationship is the foundat
 ## My Background
 
 I have a B.A. in Women's Studies and an M.A. in Counseling Psychology from Lewis and Clark College. I have been practicing for over 8 years working in a variety of settings, including crisis response, family therapy, child/adolescent play and talk therapy and community mental health with adults. I have received training in Hakomi method which incorporates mindfulness and somatic techniques to treat the body/mind), play therapy, trauma informed care, DBT, CBT and psychopharmacology among others.
+
+## Contact
+
+971-255-2323
+2705 E Burnside St
+Portland, OR 97214
