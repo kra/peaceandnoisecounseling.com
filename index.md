@@ -2,7 +2,7 @@
 title: Elizabeth Raffer Anderson Counseling
 ---
 
-# Elizabeth Raffer Anderson Consulting
+# Elizabeth Raffer Anderson
 
 Hi, I am so glad you are here. In life, it is hard to make time to ask ourselves how we are doing. It is often difficult to see why we continue to engage in the same patterns and dynamics that are no longer serving us. I am here to join you on the journey to feel more wholeness and well-being.
 
