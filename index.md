@@ -19,6 +19,17 @@ I have a B.A. in Women's Studies and an M.A. in Counseling Psychology from Lewis
 ## Contact
 
 971-255-2323
+
 [peaceandnoisecounseling@outlook.com](mailto:peaceandnoisecounseling@outlook.com)
 
 [2705 E Burnside St Portland, OR 97214](https://www.google.com/maps/place/2705+E+Burnside+St,+Portland,+OR+97214/@45.5232748,-122.6400704,17z/data=!3m1!4b1!4m5!3m4!1s0x5495a0bf20e2a10f:0x2113447bf2f9ebc0!8m2!3d45.5232748!4d-122.6378817)
+
+## At A Glance
+
+Experience: 8 Years of Practice
+
+Neighborhood: Kerns
+
+Rate: $70-120/session
+
+Free Initial Consultation
