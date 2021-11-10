@@ -16,7 +16,7 @@ My approach is direct, nurturing and connective. Our relationship is the foundat
 
 ## My Background
 
-I have a B.A. in Women's Studies and an M.A. in Counseling Psychology from Lewis and Clark College. I have been practicing for over 8 years working in a variety of settings, including crisis response, family therapy, child/adolescent play and talk therapy and community mental health with adults. I have received training in Hakomi method which incorporates mindfulness and somatic techniques to treat the body/mind), play therapy, trauma informed care, DBT, CBT and psychopharmacology among others.
+I have a B.A. in Women's Studies and an M.A. in Counseling Psychology from Lewis and Clark College. I have been practicing for over 11 years working in a variety of settings, including crisis response, family therapy, child/adolescent play and talk therapy and community mental health with adults. I also have experience working with trans, non binary and LGBTQI populations as well as polyamorous couples. I have received training in Hakomi method which incorporates mindfulness and somatic techniques to treat the body/mind), play therapy, trauma informed care, DBT, CBT and psychopharmacology among others.
 
 ## Contact
 
@@ -28,7 +28,7 @@ I have a B.A. in Women's Studies and an M.A. in Counseling Psychology from Lewis
 
 ## At A Glance
 
-Experience: 8 Years of Practice
+Experience: 11 Years of Practice
 
 Neighborhood: Kerns
 
